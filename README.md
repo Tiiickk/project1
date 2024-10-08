@@ -8,4 +8,4 @@ I'll work on a ENG app as soon as I can.
 
 Feel free to send some comments then I can improve.
 
-Have fun and hope this can make your life easier instead of doing some random things (lol)
+Have fun and hope this can make your life easier instead of doing some random things (lol).
